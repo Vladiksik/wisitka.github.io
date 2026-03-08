@@ -1,2 +1,0 @@
-# wisitka.github.io
-wisitka
